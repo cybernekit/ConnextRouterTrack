@@ -52,3 +52,8 @@ https://discord.com/channels/454734546869551114/813914092707905546/9812826365195
 - Run more tests of bridge and LP.
 
 5. Start boosting the discord server 
+
+Router Track Mission 3 (31.05-14.06)
+
+
+1.  Step-by-step video huide
